@@ -1,0 +1,2 @@
+# bluejuicestudio
+about the studio
